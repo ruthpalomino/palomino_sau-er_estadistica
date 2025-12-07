@@ -1,1 +1,0 @@
-# palomino_sau-er_estadistica
